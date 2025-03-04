@@ -1,4 +1,4 @@
-✨ An Introduction that no one asked for : ✨
+✨ An Introduction that no one asked for ✨
 
 - 👋 Hi, I’m Dhina
 - 👀 I’m interested in Technology, Finance, Business, Innovation and yeah sleeping too.
